@@ -4,4 +4,5 @@ di dicoding dong pastinya
 sangat seru hahaha  
 dan pastinya gratis  
 wkkwkwkkwkkwkwwkwk  
-menambahkan text baru
+menambahkan text baru  
+bsxiubuivci
